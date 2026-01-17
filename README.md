@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=beforeibleedout&abbrievated=true&style=plastic&color=red)**<p align="center">![Image](https://files.catbox.moe/xbbnnm.png)**
+![](https://komarev.com/ghpvc/?username=beforeibleedout&abbrievated=true&style=plastic&color=red&label=BLEEDLINGS)**<p align="center">![Image](https://files.catbox.moe/xbbnnm.png)**
 
 ***<p align="center">⋆ < 3 ‧ ₊˚ ⋅***
 
