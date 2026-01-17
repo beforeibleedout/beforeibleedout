@@ -24,12 +24,6 @@
 ***<p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘***
 *<p align="center">: -「 music fan -*
 ***<p align="center">- AuDHD , bipolar***
-
-<p align="center"> 
-<img src="https://files.catbox.moe/yenq1i.png"width="290"/>
-   
- **<p align="center">⤹- Basic DNI + DNI: any actual problematic fandoms, Forsaken, proshippers, people who fake disorders | THIN ICE: yumeshippers**
-
- 
+**<p align="center">⤹- DNI: any actual problematic fandoms, Forsaken, proshippers, people who fake disorders | THIN ICE: yumeshippers**
 **<p align="center">;    -     .𖥔 ݁ ˖- bleedout.burnout**
 **<p align="center">![Image](https://files.catbox.moe/d2nf7h.png)**
