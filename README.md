@@ -4,13 +4,13 @@
 
 
 
-**<p align="center">             🩸  { - bleed/xavier**
+**<p align="center">             🩸 - ᵇˡᵉᵉᵈ**
 **<p align="center"> ![Image](https://adriansblinkiecollection.neocities.org/a2.gif)** 
-   **<p align="center">{ - POC , bi**
+   *<p align="center">{ - ＰＯＣ ｂｉ*
 
 **<p align="center">![Image](https://adriansblinkiecollection.neocities.org/h1.gif)**
    
-***<p align="center">{ - he/they***
+***<p align="center"> - 𝗁𝖾/𝗍𝗁𝖾𝗒***
 
 <p align="center">
 <a href="https://bleed.atabook.org/">
@@ -18,12 +18,13 @@
 </a>
 </p>
 
-
-***<p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘***
+*<p align="center">![Image](https://blinkies.cafe/b/blinkiesCafe-tV.gif)*
+*<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
 *<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&cover_image=true&theme=novatorem&show_offline=true&background_color=220202&interchange=true&profanity=false&bar_color=d1001f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&redirect=true)*
-***<p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘***
-*<p align="center">: -「 music fan -*
-***<p align="center">- AuDHD , bipolar***
-**<p align="center">⤹- DNI: any actual problematic fandoms, Forsaken, proshippers, people who fake disorders | THIN ICE: yumeshippers**
-**<p align="center">;    -     .𖥔 ݁ ˖- bleedout.burnout**
+*<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
+*<p align="center">: 「 𐌌𐌵𐌔𐌉𐌂 𐌅𐌀𐌍 -*
+***<p align="center">-  ᴀᴜᴅʜᴅ , ʙɪᴘᴏʟᴀʀ***
+*<p align="center"> ᆞsᆞᆞeᆞᆞpᆞᆞeᆞᆞrᆞᆞaᆞᆞtᆞᆞiᆞᆞoᆞᆞnᆞ ᆞtᆞᆞeᆞᆞxᆞᆞtᆞ*
+**<p align="center">⤹- ᴅɴɪ: ᴀɴʏ ᴀᴄᴛᴜᴀʟ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ꜰᴀɴᴅᴏᴍꜱ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜰᴀᴋᴇ ᴅɪꜱᴏʀᴅᴇʀꜱ | ᴛʜɪɴ ɪᴄᴇ: ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀꜱ**
+**<p align="center">;    -     .𖥔 ݁ ˖- ｂｌｅｅｄｏｕｔ.ｂｕｒｎｏｕｔ**
 **<p align="center">![Image](https://files.catbox.moe/d2nf7h.png)**
