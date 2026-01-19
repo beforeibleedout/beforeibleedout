@@ -28,3 +28,6 @@
 **<p align="center">⤹- ᴅɴɪ: ᴀɴʏ ᴀᴄᴛᴜᴀʟ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ꜰᴀɴᴅᴏᴍꜱ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜰᴀᴋᴇ ᴅɪꜱᴏʀᴅᴇʀꜱ | ᴛʜɪɴ ɪᴄᴇ: ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀꜱ**
 **<p align="center">;    -     .𖥔 ݁ ˖- ｂｌｅｅｄｏｕｔ.ｂｕｒｎｏｕｔ**
 **<p align="center">![Image](https://files.catbox.moe/d2nf7h.png)**
+
+
+<a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a>
