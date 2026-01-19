@@ -18,7 +18,7 @@
 </a>
 </p>
 
-*<p align="center">![Image](https://blinkies.cafe/b/blinkiesCafe-tV.gif)*
+*<p align="center">![Image](https://blinkies.cafe/b/blinkiesCafe-d3.gif)*
 *<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
 *<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&cover_image=true&theme=novatorem&show_offline=true&background_color=220202&interchange=true&profanity=false&bar_color=d1001f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&redirect=true)*
 *<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
