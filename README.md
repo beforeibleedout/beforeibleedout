@@ -1,6 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=beforeibleedout&abbrievated=true&style=plastic&color=red&label=BLEEDLINGS)**<p align="center">![Image](https://files.catbox.moe/xbbnnm.png)**
+<p align="center">
+<a href="https://bleed.atabook.org/">
+<img src="https://files.catbox.moe/femvmf.png"width="300"/>
+</a>
+</p>
 
-***<p align="center">⋆ < 3 ‧ ₊˚ ⋅***
+
 
 
 
@@ -12,11 +17,6 @@
    
 ***<p align="center"> - 𝗁𝖾/𝗍𝗁𝖾𝗒***
 
-<p align="center">
-<a href="https://bleed.atabook.org/">
-<img src="https://files.catbox.moe/rnlnig.png"width="90"/>
-</a>
-</p>
 
 *<p align="center">![Image](https://files.catbox.moe/9a1bmy.gif)*
 *<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
