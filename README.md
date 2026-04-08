@@ -4,7 +4,7 @@
 <img src="https://files.catbox.moe/femvmf.png"width="300"/>
 </a>
 </p>
-
+curl -fsSL https://raw.githubusercontent.com/spicetify/cli/main/install.sh | sh
 
 
 
