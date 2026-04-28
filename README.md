@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=beforeibleedout&abbrievated=true&style=plastic&color=red&label=BLEEDLINGS)**<p align="center">![Image](https://files.catbox.moe/xbbnnm.png)**
 <p align="center">
 <a href="https://bleed.atabook.org/">
-<img src="https://files.catbox.moe/femvmf.png"width="300"/>
+<img src="https://files.catbox.moe/i419w5.png"width="300"/>
 
 
 
