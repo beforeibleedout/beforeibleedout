@@ -2,10 +2,6 @@
 <p align="center">
 <a href="https://bleed.atabook.org/">
 <img src="https://files.catbox.moe/femvmf.png"width="300"/>
-</a>
-</p>
-curl -fsSL https://raw.githubusercontent.com/spicetify/cli/main/install.sh | sh
-
 
 
 
@@ -22,10 +18,9 @@ curl -fsSL https://raw.githubusercontent.com/spicetify/cli/main/install.sh | sh
 *<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
 *<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&cover_image=false&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=185615&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bi2xdm347wwuxujj7pghbx7sci&redirect=true)*
 *<p align="center">![Image](https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif)*
-*<p align="center">: 「 𐌌𐌵𐌔𐌉𐌂 𐌅𐌀𐌍 -*
-***<p align="center">-  ᴀᴜᴅʜᴅ , ʙɪᴘᴏʟᴀʀ***
+***<p align="center">- ----------------> ᴀᴜᴅʜᴅ <-------- , ----> ʙɪᴘᴏʟᴀʀ <----***
 *<p align="center"> ᆞsᆞᆞeᆞᆞpᆞᆞeᆞᆞrᆞᆞaᆞᆞtᆞᆞiᆞᆞoᆞᆞnᆞ ᆞtᆞᆞeᆞᆞxᆞᆞtᆞ*
-**<p align="center">⤹- ᴅɴɪ: ᴀɴʏ ᴀᴄᴛᴜᴀʟ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ꜰᴀɴᴅᴏᴍꜱ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜰᴀᴋᴇ ᴅɪꜱᴏʀᴅᴇʀꜱ | ᴛʜɪɴ ɪᴄᴇ: ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀꜱ**
+**<p align="center">⤹- ᴅɴɪ: ᴀɴʏ ᴀᴄᴛᴜᴀʟ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ꜰᴀɴᴅᴏᴍꜱ, ꜰᴏʀꜱᴀᴋᴇɴ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜰᴀᴋᴇ ᴅɪꜱᴏʀᴅᴇʀꜱ**
 **<p align="center">;    -     .𖥔 ݁ ˖- ｂｌｅｅｄｏｕｔ.ｂｕｒｎｏｕｔ**
 **<p align="center">![Image](https://files.catbox.moe/d2nf7h.png)**
 
